@@ -1,4 +1,4 @@
-- Hi, I'm @Mrharishreddy
+- Hi, I'm @Harish Reddy S
 - I'm intrested in writing, coding and android app development
 - And I'm currently joined here to explore Github
 - I'm looking to find my same typo niche people to build relations and learn on the go....
